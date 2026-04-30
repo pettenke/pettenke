@@ -22,7 +22,7 @@
 
 
 — ‎ ‎ ‎ ‗ [gunslol](https://guns.lol/pettenke) ,
-—‎ ‎ ‎ ‎ ‗ [ata](petten.atabook.org) (plssign) ,
+—‎ ‎ ‎ ‎ ‗ [ata](https://petten.atabook.org) (plssign) ,
 —‎ ‎ ‎‎ ‎ ‗ shoutout to my [irl bestfriend](https://github.com/auradayo)!
 
 
