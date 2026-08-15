@@ -27,7 +27,8 @@
 
 — ‎ ‎ ‎ ‗ [gunslol](https://guns.lol/pettenke) ,
 —‎ ‎ ‎ ‎ ‗ [ata](https://petten.atabook.org) (plssign) ,
-—‎ ‎ ‎‎ ‎ ‗ [strawpage](https://teofon.straw.page/) ; 
+—‎ ‎ ‎‎ ‎ ‗ [strawpage](https://teofon.straw.page/) , 
+—‎ ‎ ‎‎ ‎ ‗ [rentry](https://rentry.co/hfjonebackpack) , 
 —‎ ‎ ‎‎ ‎ ‗ shoutout to my [irl bestfriend](https://github.com/auradayo)!
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="850" height="25" alt="5501d663" src="https://github.com/user-attachments/assets/68fd0f07-be1b-48e1-aaeb-8d3064fa6434" />
